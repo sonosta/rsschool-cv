@@ -7,7 +7,6 @@
 * __E-mail__: narincehin@gmail.com
 * __GitHub__: [Sonosta](https://github.com/sonosta)
 * __Telegram__: [@beheli](https://t.me/Beheli)
-* __
 
 ## About me
  #### I am 21 years old student. I'm studyng physics at Tver State University.
